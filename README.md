@@ -8,3 +8,6 @@ sher gav hassan chejore
 ye gav dare hassani
 
 gavesho bordan hendeston
+
+gavesh shir nadad khob
+bargasht be mahle
