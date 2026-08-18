@@ -1,3 +1,10 @@
 # amghezi
 yek gaav daram amghzi
-amghzi was so happy for her new cow 
+
+amghzi was so happy for her new cow
+
+sher gav hassan chejore
+
+ye gav dare hassani
+
+gavesho bordan hendeston
