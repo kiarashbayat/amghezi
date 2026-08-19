@@ -15,5 +15,4 @@ bargasht be mahle
 therefore 
 we have that cow in our town again
 
-the end
-
+the end of the story
