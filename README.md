@@ -12,5 +12,7 @@ gavesho bordan hendeston
 gavesh shir nadad khob
 bargasht be mahle
 
-the End
+therefore 
+we have that cow in our town again
 
+the end of the story
